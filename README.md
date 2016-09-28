@@ -1,2 +1,2 @@
 # Hello-World
-This is my first repository
+I just had a carrer fair today, which pissed me off.... ASU career fairs suck!!!!
